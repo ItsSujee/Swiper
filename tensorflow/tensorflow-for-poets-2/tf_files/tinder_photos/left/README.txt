@@ -1,0 +1,1 @@
+Fill this folder with images of left swipes
